@@ -22,6 +22,10 @@
 - 📫 How to reach me **jiyamaryjoseph@outlook.com**
 
 - ⚡ Fun fact **I think I am explorer**
+  
+-  📊 https://public.tableau.com/app/profile/jiya.joseph2295/vizzes
+  
+  
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
